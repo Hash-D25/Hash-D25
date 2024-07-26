@@ -1,4 +1,4 @@
-[![](https://gifdb.com/images/high/animated-chock-coding-c78f6elj32sfoi8q.webp)
+![](https://user-images.githubusercontent.com/90236635/232446433-d5540fa2-fe28-4bb8-b929-cdb51fe61336.gif)
 # 💫 About Me:
 I' am currently pursing my btech in computer science.
 
