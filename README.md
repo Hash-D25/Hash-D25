@@ -1,4 +1,4 @@
-![](https://user-images.githubusercontent.com/90236635/232446433-d5540fa2-fe28-4bb8-b929-cdb51fe61336.gif)
+![Find me in the company of unseen  (6)](https://github.com/user-attachments/assets/e49691d6-d3ef-4df8-9dea-d811f09ee338)
 # 💫 About Me:
 I'm a second year student pursuing btech in computer science from a well reputed institute
 
