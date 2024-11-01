@@ -1,6 +1,4 @@
-![Uploading Copy of Find me in the company of unseen. (3).png…]()
-
-
+![Copy of Find me in the company of unseen  (3)](https://github.com/user-attachments/assets/60ed3189-78f2-4f15-93b9-7dac093f8b41)
 # 💫 About Me:
 I'm a second year student pursuing btech in computer science from a well reputed institute
 
